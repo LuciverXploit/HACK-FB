@@ -1,10 +1,17 @@
 
 
-MY SOCIAL MEDIA :
 
-<a href="https://wa.me/62882005508374?text=Asalamualaikum+bang"><img src="https://github.com/Yayan-XD/Yayan-XD/blob/master/img/whatsapp.png" alt="alt text" width="20" height="20"></a>
-<a href="https://www.facebook.com/Luciver Malware"><img src="https://upload.wikimedia.org/wikipedia/commons/5/51/Facebook_f_logo_%282019%29.svg" alt="alt text" width="20" height="20"></a> <a href="https://squadcyberpeopleteam.blogspot.com/?m=1"><img src="https://github.com/Yayan-XD/Yayan-XD/blob/master/img/logo_blogspot_by_YayanXD.jpg" alt="alt text" width="20" height="20"></a> <a href="https://youtube.com/channel/UCNvDaXoyAVCNJbSqtaXA-mg"><img src="https://github.com/Yayan-XD/Yayan-XD/blob/master/img/logo_yt_by_YayanXD.jpg" alt="alt text" width="20" height="20"></a> 
-&nbsp;&nbsp;     &nbsp;&nbsp;    &nbsp;&nbsp;   &nbsp;&nbsp;   &nbsp;&nbsp;
+### ᴄᴏɴɴᴇᴄᴛ ᴡɪᴛʜ ᴍᴇ ☎️
+<p align="center">
+  <a href="https://instagram.com/@arimarshello_reall"><img src="https://img.shields.io/badge/Instagram-E4405F?style=for-the-badge&logo=instagram&logoColor=white"/> 
+  <a href="https://wa.me/qr/0882005508374"><img src="https://img.shields.io/badge/WhatsApp-25D366?style=for-the-badge&logo=whatsapp&logoColor=white" />
+  <a href="https://www.facebook.com/Luciver Trojans"><img src="https://img.shields.io/badge/Facebook-%234267B2.svg?&style=for-the-badge&logo=facebook&logoColor=white" />
+  <a href="https://t.me/LuciverXploit"><img src="https://img.shields.io/badge/Telegram-%230088cc.svg?&style=for-the-badge&logo=telegram&logoColor=white" /> <br>
+  <a href="https://www.youtube.com/@LuciverX"><img src="https://img.shields.io/badge/YouTube-Luciver Xploit-ff0000?style=for-the-badge&logo=youtube&logoColor=ff0000&link=https://youtube.com/channel/LuciverXploit" /><br>
+  <a name=Luciver Hacker&label=VIEWS&style=flat-square&color=orange" />
+  <a href="https://github.com/LuciverXploit"><img src="https://img.shields.io/badge/-GitHub-black?style=flat-square&logo=github" /> 
+  <a href="https://youtube.com/channel/LuciverX"><img src="https://img.shields.io/youtube/channel/subscribers/Sanzofficiall?style=social" /> <br>
+</p>
 
 _Smoking And Coffiee_
 ___
